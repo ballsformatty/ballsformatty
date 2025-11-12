@@ -6,7 +6,7 @@
 
 ###
 
-<p align="left">Roblox player, ricer.<br>*powered by way too much coffee ☕*<br><br>Spotify runs my life, if you catch me without headphones, send help! 🎧<br>Sleeping is sanity. No cap. </p>
+<p align="left">Roblox player, ricer.<br>*powered by way too much coffee and milk*<br><br>Spotify runs my life, if you catch me without headphones, send help! 🎧<br>Sleeping is sanity. No cap. </p>
 
 ###
 
